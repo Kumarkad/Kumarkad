@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Kumarkad03@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1e1hI1yJ5RpE8dGTk4RnPEKJViIBXf5g3/view?usp=drivesdk](https://drive.google.com/file/d/1e1hI1yJ5RpE8dGTk4RnPEKJViIBXf5g3/view?usp=drivesdk)
+- 📄 Know about my experiences ([https://drive.google.com/file/d/1e1hI1yJ5RpE8dGTk4RnPEKJViIBXf5g3/view?usp=drivesdk](https://drive.google.com/file/d/1_6NsPosoMTwqPEPrlLbFRyZdXaINwjbV/view?usp=drive_link))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
